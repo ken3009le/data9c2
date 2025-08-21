@@ -5,7 +5,7 @@ Kho lưu trữ **kỷ niệm cuối cấp lớp 9C2** 🌹🤡
 - Tên lớp: **9C2**  
 - Niên khóa: **2025 - 2026**  
 - GVCN lớp: *Cô Lê Thị Phượng*  
-- Thành viên lớp: ****  
+- Thành viên lớp: **...1 ...2**  
 
 ---
 ## 📸 Cấu trúc file/folder
